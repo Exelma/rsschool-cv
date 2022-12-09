@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Exelma.github.io/rsschool-cv/
